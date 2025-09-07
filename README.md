@@ -3,5 +3,4 @@ _Я научился создавать файлы и успешно ими ма
 
 ![Image](https://github.com/user-attachments/assets/62353295-7300-4b2e-8cfa-b78b9a6450ef)
 
-![Image](https://github.com/user-attachments/assets/021b5f3e-90f7-4f86-bd91-635bd7444a9a)
 
