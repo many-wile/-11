@@ -1,3 +1,7 @@
+<<<<<<< HEAD
 dddaaaaaooooooaaaaa
 
 222
+=======
+22
+>>>>>>> second
