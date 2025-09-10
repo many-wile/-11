@@ -5,3 +5,4 @@ _Я научился создавать файлы и успешно ими ма
 
 ![Image](https://github.com/user-attachments/assets/feeaac47-f6ff-4dcb-abb7-6e0c6e84c7bf)
 
+![Image](https://github.com/user-attachments/assets/ea578708-41be-40fb-9587-ac7f491c6a6d)
